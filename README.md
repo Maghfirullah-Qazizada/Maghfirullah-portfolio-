@@ -36,7 +36,7 @@ Additionally, I am a student at TCC University in the USA.
 - **CEO and Entrepreneur** – Personal Business, Afghanistan & [one Other Country]  
 - **Supervisor** – US-based Company  
 - **Civil Engineer** – Various Projects  
-
+prospec company, customer service representative 
 ---
 
 ## 📬 Contact
